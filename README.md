@@ -4,20 +4,40 @@ I'm a former math teacher and am working towards a career in something technical
 
 
 
-## :dollar: Finance 
+## Things I am Interested In: 
 
 
 
-## :hammer: Industrial Engineering
+### :dollar: Finance 
 
 
 
-## :truck: Supply Chain Management/Logistics
+### :hammer: Industrial Engineering
 
 
 
-## :ledger: Inventory Management
+### :truck: Supply Chain Management/Logistics
 
 
 
-## :pencil2: Research 
+### :ledger: Inventory Management
+
+
+
+### :pencil2: Research 
+
+
+
+
+
+## Things I Can Do: 
+
+
+
+### :snake: Python
+
+
+
+
+
+### 
