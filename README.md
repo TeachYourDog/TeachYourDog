@@ -24,6 +24,10 @@ I'm a former math teacher and am working towards a career in something technical
 
 
 
+### :boat: Risk Management
+
+
+
 ### :pencil2: Research 
 
 
