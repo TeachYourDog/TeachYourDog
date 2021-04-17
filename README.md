@@ -1,6 +1,6 @@
 # Hi there, I'm Matt 👋
 
-I'm a former math teacher and am working towards a career in something technical but I'm not sure yet. There are a lot of different problems that I enjoy working on and I believe would be interesting to continue working on. 
+I'm a former math teacher and am working towards a career in something technical but I'm not sure yet. There are a lot of different problems that I enjoy working on and I believe would be well suited to work on.  
 
 
 
