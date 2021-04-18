@@ -12,6 +12,10 @@ I'm a former math teacher and am working towards a career in something technical
 
 
 
+### :evergreen_tree: Woodworking 
+
+
+
 ### :hammer: Industrial Engineering
 
 
@@ -20,7 +24,15 @@ I'm a former math teacher and am working towards a career in something technical
 
 
 
+### :space_invader: Game Design and Development
+
+
+
 ### :ledger: Inventory Management
+
+
+
+### :guitar: Music 
 
 
 
@@ -32,13 +44,9 @@ I'm a former math teacher and am working towards a career in something technical
 
 
 
+### :baseball: Baseball (and other sports)
 
 
-## Things I Can Do: 
-
-
-
-### :snake: Python
 
 
 
