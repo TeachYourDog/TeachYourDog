@@ -1,6 +1,6 @@
 # Hi there, I'm Matt 👋
 
-I'm a former math teacher and am working towards a career in something technical but I'm not sure yet. There are a lot of different problems that I enjoy working on and I believe would be well suited to work on.  
+I'm a former math teacher and am moving myself into a career that relies on mathematics, data analysis, model building, decision making and creates a meaningful impact. Listed below are some examples of personal interests as well as types of problems I think would be a lot of fun to work on. 
 
 
 
