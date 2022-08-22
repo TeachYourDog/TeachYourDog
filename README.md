@@ -9,7 +9,7 @@ I'm a former math teacher, current operations specialist and I really love writi
 ### :evergreen_tree: Woodworking 
 
 
-### :baseball: Baseball (and other sports)
+### :baseball: Baseball (and other sports) ((but mostly baseball))
 
 
 
