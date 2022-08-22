@@ -9,15 +9,6 @@ I'm a former math teacher, current operations specialist and I really love writi
 ### :evergreen_tree: Woodworking 
 
 
-
-### :space_invader: Game Design and Development
-
-
-
-### :guitar: Music 
-
-
-
 ### :baseball: Baseball (and other sports)
 
 
